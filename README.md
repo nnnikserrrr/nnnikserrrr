@@ -10,7 +10,7 @@
 <br>
 💬 Write to me at any time, I will answer as soon as possible! <br>
 <br>
-⚡ Interesting fact: I like to play voleyball <br>
+⚡ Interesting fact: I like to play volleyball <br>
 <br>
 
 
